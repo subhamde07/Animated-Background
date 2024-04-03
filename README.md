@@ -21,14 +21,19 @@
 - ### Animated Background - 7
 
 - ### Animated Background - 8
+  ![Animated Background - 8](https://github.com/subhamde07/Animated-Background/assets/78950020/0e7f5454-4311-48cb-be7d-854f0315070c)
 
 - ### Animated Background - 9
+  ![Animated Background - 9 1](https://github.com/subhamde07/Animated-Background/assets/78950020/7d2dd38c-136c-4b2c-9582-c707978d8a17)
 
 - ### Animated Background - 10
+  ![Animated Background - 10](https://github.com/subhamde07/Animated-Background/assets/78950020/d243e9c3-32c1-43be-9fb8-06726169ec8b)
 
 - ### Animated Background - 11
+  ![Animated Background - 11](https://github.com/subhamde07/Animated-Background/assets/78950020/4e242d42-40b3-4c48-bb14-748edba7617a)
 
 - ### Animated Background - 12
+  ![Animated Background - 12](https://github.com/subhamde07/Animated-Background/assets/78950020/ce39335e-9d76-40cf-a7a2-9fa1b5f21528)
 
 - ### Animated Background - 13
 
